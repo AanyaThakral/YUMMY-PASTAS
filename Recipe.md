@@ -1,0 +1,6 @@
+In a pan, put some water for boiling. Then put some salt and oil in it. Put the Pasta in the boiling Water then cover it and cook it for 8-9 minutes.Then turn off the flame and take out the pasta in a strainer and drain out the water. Put some cold water on the Pasta and then keep the boiled pasta aside.
+In another pan,put some butter and onions .Roast the onions and after few minutes, put some chopped vegetables like carrot,capsicum and corns. Then put some black pepper and cover the vegetables and cook them on slow flame for some time.
+For white sauce, take a pan, put some Butter and maida in it and roast it. Stir it continuously while roasting them turn off the flame and stir it well. Put some milk in it gradually and mix it well then turn on the flame and cook it. Put some salt, black pepper, chilli flakes and mixed herbs in the sauce. 
+Now add the boiled Pasta and cooked vegetables in this sauce.  
+Add cheese slices and mix it well. 
+And Your yummy Pasta is ready. So enjoyy the Cheesy and Creamy Pasta!
